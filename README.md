@@ -1,1 +1,1 @@
-# Meta-de-Inflaci-n
+# Meta-de-Inflacion
